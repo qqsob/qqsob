@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @qqsob
+- 👀 I’m interested in bebra
+- 🌱 I’m currently learning anything
+- 💞️ I’m looking to collaborate on cats
